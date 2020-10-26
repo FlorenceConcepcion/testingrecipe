@@ -2,5 +2,5 @@
 * 1 lime
 * 2 tsp salt
 
-2 tbsp coriander 
+only 1 tsp coriander 
 
